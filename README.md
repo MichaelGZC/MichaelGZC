@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MichaelGZC
-- 👀 I’m interested in Kaki linux
+- 👀 I’m interested in Kali linux
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 2426925633gzc@gmail.com
